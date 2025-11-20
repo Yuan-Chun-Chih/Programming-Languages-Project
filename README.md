@@ -1,3 +1,3 @@
 ## 專題連結區 (￣ω￣)人(￣︶￣)
 
-[程式語言期末專題初步提案 : 輿情趨勢分析](https://youtu.be/jjxlESuLTko)
+[程式語言期末專題初步提案 : 輿情趨勢分析](https://youtu.be/Ne-l5U9BqKo)
